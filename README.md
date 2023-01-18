@@ -2,4 +2,4 @@
 
 ## Editing the file
 
-This file is own by me.
+Seize the day
